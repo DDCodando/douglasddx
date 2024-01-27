@@ -8,4 +8,3 @@
 
 📫 How to find me?
 📧 douglasddx@gmail.com 
-📱 +55 91 98017-1532
