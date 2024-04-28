@@ -1,4 +1,4 @@
-👋 Hi, I’m Douglas Damasceno (user git @douglasddx)
+👋 Hi, I’m Douglas Damasceno (user git @DDCdando)
 
 💻 I'm an application development enthusiast
 
